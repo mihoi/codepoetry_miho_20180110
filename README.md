@@ -9,3 +9,7 @@ Mere anarchy is loosed upon the world,
 The blood-dimmed tide is loosed, and everywhere
 
 The ceremony of innocence is drowned;
+
+I forgot line seven of the poem.
+
+I also don't know line eight.
